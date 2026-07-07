@@ -322,7 +322,7 @@ https://atelium.xyz
 
 ### X (Twitter)
 
-https://x.com/UseAtelium
+https://x.com/AteliumXyz
 
 ---
 
